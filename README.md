@@ -1,1 +1,1 @@
-# eastdelta.edu.bd.test1.github.io
+# eastdeltauniversitytest.github.io
